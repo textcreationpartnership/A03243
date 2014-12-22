@@ -35,11 +35,25 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A modest reply to certaine answeres, which Mr. Gataker B.D. in his treatise of the nature, & vse of 
+
+1. To the right Worſhipfull Maſter Lionel Maddiſon, Maior, the Aldermen his Brethren▪ and the godly Burgeſſes of Newcaſtle vpon Tine; IAMES BALMFORD wisheth the kingdome of God & his righteouſneſſe that other things may be miniſtred vnto them.
+
 #####Body#####
-A modest reply to certaine answeres, which Mr. Gataker B.D. in his treatise of the nature, & vse of 
+
+1. A ſhort and plaine Dialogue concerning the vnlawfulnes of playing at Cards or Tables, or any other game conſiſting of chance.
+CHristian Reader; it is no new thing that men▪ learned, wiſe, and judicious, holding the ſame orthod
+1. 2. Tim. 3. 4. To the Chriſtian Reader being none of thoſe men▪ who, (according to S. Paul's prophecy,) love pleaſures more than God.
+
+1. To the Reader.
+
+1. An Anſwere to Reaſons inducing M. Gataker to allow luſorious Lottes, as not evill in themſelves, Lib. 6. § 4.
+
+1. A Reply to M. Gataker's anſwers to arguments conteined in a Dialogue against the vnlawfulnes of games conſiſting in chaunce.
+
 #####Back#####
-A modest reply to certaine answeres, which Mr. Gataker B.D. in his treatise of the nature, & vse of 
+
+1. ERRATA.
+
 **Types of content**
 
   * There are 2 **verse** lines!
